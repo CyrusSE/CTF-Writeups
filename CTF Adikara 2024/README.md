@@ -5,4 +5,4 @@
 ![Rank 1](https://i.imgur.com/aT1Q6fy.png)
 
 ## Finalist
-Not yet
+### Rank 1
